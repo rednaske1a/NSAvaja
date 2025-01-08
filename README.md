@@ -1,1 +1,2 @@
-# NSAvaja
+vodja-Aleksander
+clan-Mohor
